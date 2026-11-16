@@ -1,0 +1,1 @@
+Vocabulary quiz photo assets. Upload vocabulary-photo-collage.jpg here.
